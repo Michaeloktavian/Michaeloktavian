@@ -4,12 +4,12 @@ I'm Michael Oktavianus Hutabarat, an enthusiast person for exploring and learnin
 
 - 🔭 I’m currently working on projects at Matahari Dept. Store
 - 🌱 I’m currently learning and exploring the fascinating world of coding
-- 👯 I’m looking to collaborate on exciting coding projects and open-source contributions
+- 👯 I’m looking for mentor who can teach more deeply about coding
 - 🤔 I’m looking for help with improving my skills in [specific technologies or areas you need help with]
-- 💬 Ask me about coding, technology, and any interesting project ideas you have
+- 💬 Ask me about coding, technology,bussiness and any interesting project ideas you have
 - 📫 How to reach me: [@michael.0ktavianus](https://www.instagram.com/michael.0ktavianus)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love exploring new tech trends and playing video games in my free time
+- ⚡ Fun fact: I love exploring new tech trends and play badminton when i got free time
 
 Feel free to check out my repositories and get in touch if you have any questions or collaboration ideas!
 
