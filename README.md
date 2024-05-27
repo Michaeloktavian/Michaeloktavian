@@ -7,7 +7,7 @@ I'm Michael Oktavianus Hutabarat, an enthusiast person for exploring and learnin
 - 👯 I’m looking to collaborate on exciting coding projects and open-source contributions
 - 🤔 I’m looking for help with improving my skills in [specific technologies or areas you need help with]
 - 💬 Ask me about coding, technology, and any interesting project ideas you have
-- 📫 How to reach me: [your email@example.com]
+- 📫 How to reach me: [@michael.0ktavianus](https://www.instagram.com/michael.0ktavianus)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love exploring new tech trends and playing video games in my free time
 
