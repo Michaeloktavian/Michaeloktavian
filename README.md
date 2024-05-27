@@ -40,6 +40,10 @@ Feel free to check out my repositories and get in touch if you have any question
 
 ![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=Michaeloktavian&layout=compact&theme=radical)
 
+- **JavaScript**: 20%
+- **Python**: 0%
+- **HTML/CSS**: 30%
+- **Other Languages**: 0%
 ---
 
 ### Connect with me:
