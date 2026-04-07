@@ -8,8 +8,8 @@ I'm Michael Oktavianus Hutabarat, an enthusiast person for exploring and learnin
 - 🤔 I’m looking for help with improving my skills in [specific technologies or areas you need help with]
 - 💬 Ask me about coding, technology,bussiness and any interesting project ideas you have
 - 📫 How to reach me:
-LinkedIn  : [Michael Oktavianus Hutabarat](https://www.linkedin.com/in/michael-oktavianus-hutabarat-813672260/)
-Instagram : [@michael.0ktavianus](https://www.instagram.com/michael.0ktavianus)
+- LinkedIn  : [Michael Oktavianus Hutabarat](https://www.linkedin.com/in/michael-oktavianus-hutabarat-813672260/)
+- Instagram : [@michael.0ktavianus](https://www.instagram.com/michael.0ktavianus)
   
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love exploring new tech trends and play badminton when i got free time
