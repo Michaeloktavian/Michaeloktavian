@@ -12,7 +12,7 @@ I'm Michael Oktavianus Hutabarat, an enthusiast person for exploring and learnin
 - Instagram : [@michael.0ktavianus](https://www.instagram.com/michael.0ktavianus)
   
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love exploring new tech trends and play badminton when i got free time
+- ⚡ Fun fact: I love exploring new tech trends and stocks market enthusiast
 
 Feel free to check out my repositories and get in touch if you have any questions or collaboration ideas!
 
