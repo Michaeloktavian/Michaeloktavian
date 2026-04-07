@@ -25,7 +25,7 @@ Feel free to check out my repositories and get in touch if you have any question
 
 ### Connect with me:
 
-- [LinkedIn](https://www.linkedin.com/in/mikhael-oktavianus-hutabarat-813672260/)
+- [LinkedIn](https://www.linkedin.com/in/michael-oktavianus-hutabarat-813672260/)
 - [Twitter](https://x.com/Myycals)
 - [instagram](https://www.instagram.com/michael.0ktavianus)
 - [Facebook](https://www.facebook.com/Michael-Oktavianus-Hutabarat/)
